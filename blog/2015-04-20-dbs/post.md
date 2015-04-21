@@ -3,7 +3,7 @@ title: "Döda Böckers Sällskap, DBS"
 date:   04/20/2015
 taxonomy:
     tag: [presentation]
-image: swim.jpg
+image: utkast_till_en_borgare.jpg
 ---
 #Presentation
 Jag känner att bokflödet blir alltmer nyhetsbaserat, trots att vi har stora möjligheter att i princip göra alla böcker tillgängliga genom digital publicering, så är det en mängd böcker som bara försvinner efter ett fåtal år då förlagen inte längre har dem i lager, storsäljare lyckas få förlängd livslängd med hjälp av pocket. Så mycket mer än så brukar det inte bli.
