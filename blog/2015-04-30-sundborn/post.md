@@ -10,7 +10,7 @@ Franska Philippe Delerm verkar ha haft en höjdpunkt i Sverige i början av 2000
 
 Delerm, som föddes 1950, är dock en mycket produktiv författare - han har skrivit över 40 böcker varav över 20 romaner. Fram till 2007 arbetade han vid sidan av författandet som lärare i fransk litteratur, sedan dess fokuserar han helt på författandet.
 
-Sundborn eller Dagar av ljus tar sin utgångspunkt i berättarjaget Ulrik Tercier, och hur han sommaren 1884 umgås med Carl och Karin Larsson, Sören Kröyer, och de människor som finns runt dem i den tillfälliga nordiska kolonin i Grez-sur Loing, en lantlig idyll på lagom avstånd från Paris.
+Sundborn eller Dagar av ljus tar sin utgångspunkt i berättarjaget Ulrik Tercier, och hur han sommaren 1884 umgås med Carl och Karin Larsson, Sören Krøyer, och de människor som finns runt dem i den tillfälliga nordiska kolonin i Grez-sur Loing, en lantlig idyll på lagom avstånd från Paris.
 
 Det som jag finner väldigt intressant i berättelsen, som är skriven på en mycket känslig prosa med beskrivande, liksom luktande på livet, är att berättarjagets egna liv förminskas vid sidan av de människor som han vill berätta om, det händer honom stora saker i hans eget liv, föräldrarna dör, han träffar den stora kärleken,  men det han är koncentrerad vid är främst konstnärerna Larsson och Krøyer, och deras skildringar av lyckan, av ljuset.
 
